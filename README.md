@@ -20,5 +20,15 @@
     Linii de legătură
 
 
+![WhatsApp Image 2024-10-22 at 22 41 03](https://github.com/user-attachments/assets/557600cb-0397-4ed3-85ce-18514394574a)
+
+    
+
+
+https://github.com/user-attachments/assets/ff501e72-ef03-475a-86c4-8cafee6475f5
+
+
+![Bodacious Jaiks-Hango](https://github.com/user-attachments/assets/bed4607a-d162-4b91-abf3-b375f04fa292)
+
 
     
